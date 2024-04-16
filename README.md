@@ -1,6 +1,6 @@
-# My-Portfolio
+# Portfolio
 
-🚀 **Bashar A. Yehya | Creative Copywriter & Consultant**
+**Bashar A. Yehya | Creative Copywriter & Consultant**
 ---
 - **📍 Location:** Beirut, Lebanon
 - **📞 Phone:** +961 76 993032
