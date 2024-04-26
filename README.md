@@ -10,7 +10,7 @@
 - **📸 Instagram:** [@basharyehya](https://www.instagram.com/basharyehya)
 
 ### 🌟 Professional Summary
-Innovative and strategic copywriter with extensive experience in delivering cutting-edge content that drives audience engagement and stimulates business growth. Specializing in blockchain, digital marketing, and multimedia storytelling.
+Innovative and strategic copywriter with extensive experience in delivering cutting-edge content that drives audience engagement and stimulates business growth. Specializing in writing, digital marketing, and multimedia storytelling.
 
 ### 🛠️ Skills
 - SEO Optimization 📈
